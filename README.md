@@ -2,7 +2,7 @@
 🎀🎀🎀🎀🎀
 ## my name is olive  
 ## I like horses, drawing, cosplay+anime, hiking, and goofing around i try to make ppl laugh
-## my dni: i block you. and i like starting internet fights it makes me go lol LAWL 
+## my dni: i block you. and i like starting/joining internet fights it makes me go lol LAWL 
 🎀🎀🎀🎀🎀
 ### 💻 &nbsp; awesome life shit
 🎀🎀🎀🎀🎀
